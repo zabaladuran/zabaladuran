@@ -1,3 +1,6 @@
+
+![221854](https://github.com/user-attachments/assets/b7cc4b8f-0d1f-4e97-88d6-c5f428bdaf1f)
+
 ![frieren de lado](https://github.com/user-attachments/assets/98fd0996-55fd-4bbd-a263-540e592ae40c)
 
 <h1 align="center" > Hi,<img src="https://github.com/vimalverma558/vimalverma558/blob/v2/img/Hi.gif" width="20px"> I'm <a href="https://github.com/zabaladuran" target="blank">zabaladuran</a> I am a junior programmer.</h1>
