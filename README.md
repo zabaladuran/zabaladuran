@@ -1,5 +1,6 @@
 
-![frieren de lado](https://github.com/user-attachments/assets/98fd0996-55fd-4bbd-a263-540e592ae40c)
+![～_(_つ_ˆ_Д_ˆ_)_つ_｡_☆ (1)](https://github.com/user-attachments/assets/d22ee472-291f-4307-8cdd-7dd7ba43f3e4)
+
 
 <h1 align="center" > Hi,<img src="https://github.com/vimalverma558/vimalverma558/blob/v2/img/Hi.gif" width="20px"> I'm <a href="https://github.com/zabaladuran" target="blank">zabaladuran</a> I am a junior programmer.</h1>
 <h2>About me :<br> </h2> 
